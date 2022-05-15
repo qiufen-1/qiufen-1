@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @qiufen
 - 👀 I’m interested in making innovative websites !
 - 🌱 I’m currently learning website designing
-- 💞️ I’m looking to collaborate on a... girlfriend ? lol
+- 💞️ I’m looking to collaborate on a... rich woman ? lol
 - 📫 How to reach me ... Sorry but you can't reach me.
 
 <!---
